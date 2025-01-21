@@ -1,0 +1,2 @@
+- https://discord.com/channels/1127340805741359164/1328023523737735259
+- https://github.com/jbogard
